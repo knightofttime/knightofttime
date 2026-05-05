@@ -1,5 +1,6 @@
 my name dave i love all my friends
-proship darkship whatever dni
-dave fictkin
+basic dni criteria . proship/darkship dni 
+immm a dave fictkin . doubles free 2 int , js IWC if u like to say "no im the real dave" i guess bro
 
-idk what to put here idk how iit works
+all skins dnc 
+i can always b found at hs area, docks, or with friends. 
