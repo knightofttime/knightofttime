@@ -1,9 +1,4 @@
-my name dave i love all my friends
-basic dni criteria . proship/darkship dni 
-immm a dave fictkin . doubles free 2 int , js IWC if u like to say "no im the real dave" i guess bro
+please stop fucking harassing my boyfriend talking about how we are "stridercest shippers" like no the fuck we are not. i hate to break it to you but stridercest is such a huge trigger for me and id much rather that people stop harassing my BOYFRIEND. about it. 
+if i had a nickle everytime people kept accusing me and pushing that im a stridercest shipper id have like maybe THREE NICKLES. STOP THAT!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
-all skins dnc 
-i can always b found at hs area, docks, or with friends. 
-
-i block freely
-yay
+i block darkshippers + those that fit the basic dni criteria. 
