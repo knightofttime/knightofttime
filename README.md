@@ -1,6 +1,6 @@
 <div align="center">
   
-<img src="https://cdn.discordapp.com/attachments/1383434348195479572/1508006948883136573/IMG_20260524_151926.jpg?ex=6a13f86a&is=6a12a6ea&hm=762098f410f20c0c9e00a7b291cc3c928e42294d1108ff3badb5ba8c4308ea84" width="700px">
+<img src="https://cdn.discordapp.com/attachments/1383434348195479572/1508013649690628167/image.png?ex=6a13fea7&is=6a12ad27&hm=9612dde3d6a52bf9256b8d68c3d83e695dd82664f2ba8284a62f4d28886105e5" width="700px">
 
 ┈・・┈・・┈・・┈・・┈・┈・・┈・・┈・・┈・・┈・
 
