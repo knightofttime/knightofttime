@@ -5,4 +5,5 @@
 ┈・・┈・・┈・・┈・・┈・┈・・┈・・┈・・┈・・┈・
 
 hi my name is dave      he   /  him    basic DNI criteria 
+
 mostly with my friends at the HS area or docks  dont be scared to say hi i dont bite
