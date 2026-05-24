@@ -8,8 +8,12 @@ hi my name is dave      he   /  him    basic DNI criteria
 
 mostly with my friends at the HS area or docks  dont be scared to say hi i dont bite
 
-my cute cute cute cutie friends hello
+
+
+my bffs and my friends :) 
 
 my bf <3 [dirk](https://github.com/dirkhal)   +   [mae](https://github.com/absolutesapphic)   +   [vibri](https://github.com/vibribbongaming)
 
 [mel](https://github.com/m3lzy4yy)   +   [davey](https://github.com/golgothas-godhead)   +   [cal](https://github.com/unndyingumbrage)   +   [jude](https://github.com/C4PT0RB0T)
+
+█║▌│█│║▌║││█║▌║▌║
