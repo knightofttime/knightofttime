@@ -2,8 +2,6 @@
   
 <img src="https://cdn.discordapp.com/attachments/1383434348195479572/1508013649690628167/image.png?ex=6a13fea7&is=6a12ad27&hm=9612dde3d6a52bf9256b8d68c3d83e695dd82664f2ba8284a62f4d28886105e5" width="700px">
 
-█║▌│█│║▌║││█║▌║▌║
-
 hi my name is dave      he   /  him    basic DNI criteria 
 
 mostly with my friends at the HS area or docks  dont be scared to say hi i dont bite
