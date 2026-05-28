@@ -14,5 +14,5 @@ my bffs and my friends :)
 
 my bf <3 [dirk](https://github.com/dirkhal)   +   [mae](https://github.com/absolutesapphic)   +   [vibri](https://github.com/vibribbongaming)
 
-[mel](https://github.com/m3lzy4yy)   +   [davey](https://github.com/golgothas-godhead)   +   [cal](https://github.com/unndyingumbrage)   +   [jude](https://github.com/C4PT0RB0T)
+[mel](https://github.com/m3lzy4yy)   +   [davey](https://github.com/golgothas-godhead)   +   [cal](https://github.com/unndyingumbrage)   +   [jude](https://github.com/ultdirk)   +   morty (no github)
 
