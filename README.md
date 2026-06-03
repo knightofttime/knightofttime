@@ -8,11 +8,9 @@ mostly with my friends at the HS area or docks  dont be scared to say hi i dont 
 
 
 ┈・・┈・・┈・・┈・・┈・ ┈・・┈・・┈・・┈・・┈・ 
-
-
-my bffs and my friends :) 
+honorable mentions!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
 my bf <3 [dirk](https://github.com/dirkhal)   +   [mae](https://github.com/absolutesapphic)   +   [vibri](https://github.com/vibribbongaming)
 
-[mel](https://github.com/m3lzy4yy)   +   [davey](https://github.com/golgothas-godhead)   +   [cal](https://github.com/unndyingumbrage)   +   [jude](https://github.com/uItdirk)   +   morty (no github)
+[mel](https://github.com/m3lzy4yy)   +   [davey](https://github.com/golgothas-godhead)  +   [jude](https://github.com/uItdirk)   +   morty (no github)
 
