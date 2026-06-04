@@ -8,6 +8,7 @@ mostly with my friends at the HS area or docks  dont be scared to say hi i dont 
 
 
 ┈・・┈・・┈・・┈・・┈・ ┈・・┈・・┈・・┈・・┈・ 
+
 honorable mentions!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
 my bf <3 [dirk](https://github.com/dirkhal)   +   [mae](https://github.com/absolutesapphic)   +   [vibri](https://github.com/vibribbongaming)
