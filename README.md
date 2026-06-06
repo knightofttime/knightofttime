@@ -1,15 +1,14 @@
 <div align="center">
   
-<img src="https://cdn.discordapp.com/attachments/1383434348195479572/1508013649690628167/image.png?ex=6a13fea7&is=6a12ad27&hm=9612dde3d6a52bf9256b8d68c3d83e695dd82664f2ba8284a62f4d28886105e5" width="700px">
+<img src="https://files.catbox.moe/61kxpe.png" width="500px">
 
-hi my name is dave      he   /  him    basic DNI criteria 
+i use he / him pronouns
 
-mostly with my friends at the HS area or docks  dont be scared to say hi i dont bite
+i block freely. basic DNI criteria (proship, zoophile, anything affiliated) 
 
 
-┈・・┈・・┈・・┈・・┈・ ┈・・┈・・┈・・┈・・┈・ 
-
-honorable mentions!!!!!!!!!!!!!!!!!!!!!!!!!!!
+    ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
+## my honorable mentions    ┈    💭
 
 my bf <3 [dirk](https://github.com/dirkhal)   +   [mae](https://github.com/absolutesapphic)   +   [vibri](https://github.com/vibribbongaming)
 
