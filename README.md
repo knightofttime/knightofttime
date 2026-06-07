@@ -2,9 +2,9 @@
   
 <img src="https://files.catbox.moe/61kxpe.png" width="500px">
 
-i use he / him pronouns
+he / him pronouns
 
-i block freely. basic DNI criteria (proship, zoophile, anything affiliated) 
+i mostly block freely, but if you fit under the basic dni criteria you are instantly blocked
 
 
     ┈ ┈ ┈ ┈ ┈ ┈ ┈ ┈
