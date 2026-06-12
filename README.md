@@ -1,6 +1,6 @@
 <div align="center">
   
-<img src="https://media.discordapp.net/attachments/1383434348195479572/1513746464889765989/Untitled214_20260609004429.png?ex=6a28d9c1&is=6a278841&hm=a08485032f40d237a6e9d1af91e3a5ae21dd3cd9e27e6d46392cea7304d3fb51&=&format=webp&quality=lossless&width=620&height=465" width="500px">
+<img src="https://files.catbox.moe/tchbfy.png" width="500px">
 
 he / him pronouns
 
