@@ -8,6 +8,8 @@ i mostly block freely, but if you fit under the basic dni criteria you are insta
 
 most of the time i dont interact with / dm  people first. if u want to be friends int with me first
 
+<img src="https://files.catbox.moe/01xedx.png" width="500px">
+
 ## my honorable mentions    ┈    💭
 
 my bf <3 [dirk](https://github.com/TlMAEUS)   +   [mae](https://github.com/absolutesapphic)   +   [vibri](https://github.com/vibribbongaming)
