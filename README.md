@@ -6,7 +6,7 @@ he / him pronouns
 
 i mostly block freely, but if you fit under the basic dni criteria you are instantly blocked
 
-most of the time i dont interact with / dm  people first. if u want to be friends int with me first
+int first. 
 
 <img src="https://files.catbox.moe/01xedx.png" width="500px">
 
