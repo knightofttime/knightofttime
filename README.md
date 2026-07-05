@@ -14,5 +14,5 @@ int first.
 
 my bf <3 [dirk](https://github.com/TlMAEUS)
 
-[mae](https://github.com/absolutesapphic)   +   [vibri](https://github.com/vibribbongaming)   +   [mel](https://github.com/m3lzy4yy)   +   [davey](https://github.com/golgothas-godhead)  +   [jude](https://github.com/uItdirk)   +   morty (no github)
+[mae](https://github.com/absolutesapphic)   +   [vibri](https://github.com/vibribbongaming)   +   [mel](https://github.com/m3lzy4yy)   +   [davey](https://github.com/golgothas-godhead)  +   [jude](https://github.com/uItdirk)   +   morty (no github)   +   [jace](https://github.com/fleshburn)
 
