@@ -1,20 +1,17 @@
 <div align="center">
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Courier+new&weight=200&duration=3000&pause=600&color=FF0000&center=true&vCenter=true&width=435&lines=youve+become+a+part+of+me;youll+always+be+right+here)](https://git.io/typing-svg)
   
-<img src="https://files.catbox.moe/tchbfy.png" width="500px">
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=40&duration=3000&pause=600&color=AEAE82&center=true&vCenter=true&width=435&lines=youve+become+a+part+of+me;youll+always+be+right+here)](https://git.io/typing-svg)
+  
+<img src="https://file.garden/ake1ZwoKFEFRZAna/Untitled247_20260708142922.png" width="500px">
 
-he / him pronouns
+ ###  ıllı ・──・──・──・──・❰❰
 
-i mostly block freely, but if you fit under the basic dni criteria you are instantly blocked
 
-int first. 
+<ins>he   .   him</ins>
 
-<img src="https://files.catbox.moe/01xedx.png" width="500px">
+ minor    ㆍ   __intp<sup>-t</sup>__    ㆍ    gmt +8
 
-## my honorable mentions    ┈    💭
+i do not interact with people first unless you are my friend.
 
-my bf <3 [dirk](https://github.com/TlMAEUS)
 
-[mae](https://github.com/absolutesapphic)   +   [vibri](https://github.com/vibribbongaming)   +   [mel](https://github.com/m3lzy4yy)   +   [davey](https://github.com/golgothas-godhead)  +   morty (no github)   +   [jace](https://github.com/fleshburn)
-
+・──・──・──・──・
