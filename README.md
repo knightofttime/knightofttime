@@ -9,7 +9,7 @@
 
 <ins>he   .   him</ins>
 
- minor    ㆍ   __intp<sup>-t</sup>__    ㆍ    gmt +8
+ minor    ㆍ   __intp<sup>-t</sup>__    ㆍ    gmt __+8__
 
 i do not interact with people first unless you are my friend.
 
