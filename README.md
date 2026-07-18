@@ -1,6 +1,6 @@
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=40&duration=3000&pause=600&color=AEAE82&center=true&vCenter=true&width=435&lines=youve+become+a+part+of+me;youll+always+be+right+here)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&duration=3000&pause=800&color=BE292A&center=true&vCenter=true&width=435&lines=It's+wonderful+to+be+Norwegian+in+Denmark!)](https://git.io/typing-svg)
   
 <img src="https://files.catbox.moe/ugquni.png" width="500px">
 
