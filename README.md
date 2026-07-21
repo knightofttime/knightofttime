@@ -13,5 +13,7 @@
 
 i do not interact with people first unless you are my friend.
 
+i am an incredibly busy person, i rarely talk to new people online. im friendly, but keep in mind i might reply late.
+
 
 ・──・──・──・──・
