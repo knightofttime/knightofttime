@@ -4,6 +4,6 @@
 
 i love my [wife](https://github.com/jwadeypup)
 
-minor  ・  intp  ・  gmt +8 
+minor  ・  intp  ・  gmt +8  ・  filipino
 
 very inactive
